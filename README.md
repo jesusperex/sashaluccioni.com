@@ -1,2 +1,0 @@
-# sashaluccioni.com
-sashaluccioni.com
